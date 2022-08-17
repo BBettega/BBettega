@@ -1,4 +1,4 @@
-### Hi there 👋
+### Formado em biotecnologia, estudando engenharia de software. 👋
 
 
 <div align="left">
